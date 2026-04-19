@@ -1,4 +1,4 @@
-# redguy10
+hai
 gg's Maaan
 <h1 align="center">Hi 👋, I'm redguy10</h1>
 <h3 align="center">A passionate guy from india</h3>
